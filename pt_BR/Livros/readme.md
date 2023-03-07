@@ -63,7 +63,7 @@ Este livro é a primeira explicação completa das palavras do anjo em Daniel 11
 "bem aventurado aquele que lê, e os que ouvem as palavras desta profecia, e guardam as coisas que nela estão escritas; porque o tempo está próximo"(Apoc. 1:3). Boa leitura!
 ```
 
-## Jesus Cristo o revelador do amor de Deus
+## [Jesus Cristo o revelador do amor de Deus](Cristo-OReveladorDoAmorDeDeus/Cristo-O-Unigenito.md)
 
 A humanidade tateia a procura de um Deus de amor. A Bíblia ensina que Ele existe e "é amor" (I João 4:8). E deu uma revelação de Si mesmo através do Seu Filho. O estudo da origem, posição, missão, obra e sacrifício de Jesus Cristo nos leva a enxergar que sempre fomos caros ao coração de Deus, desde a eternidade. Também nos mostra que Ele tem um maravilhoso plano para a vida de cada um de nós, para nos limpar de todo o mal e nos dar vida eterna para desfrutar um céu de bênçãos acima de todas as nossas expectativas. Aquilo que "olhos não viram, nem ouvidos ouviram, nem jamais penetrou no coração humano", foi preparado por Ele para os que 0 amam ( Cor. 2:9).
 
